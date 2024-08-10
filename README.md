@@ -1,1 +1,6 @@
-![image](https://github.com/user-attachments/assets/be4ff765-1ccb-4aa1-af08-0a96bf539746)
+tên: tự nhìn <br>
+thích: LLVH, ăn, ngủ <br>
+ghét: toán lý hóa anh <br>
+gu ny lý tưởng: đtr 6 múi, giỏi toán lý hóa để kèm t, có thể kèm t môn văn mặc dù 99% t sẽ giỏi hơn thằng đó. <br>
+
+# cảm ơn vì đã đọc và không hẹn gặp lại
