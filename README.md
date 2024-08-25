@@ -1,4 +1,4 @@
-"Người nghệ sỹ ấy đóng trăm vai vai nào cũng giỏi <br>
+"Người diễn viên ấy đóng trăm vai vai nào cũng giỏi <br>
 Chỉ một vai không đóng nổi <br>
 Vai mình!"
 
