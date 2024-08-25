@@ -1,1 +1,5 @@
-"Mình rất thích những người con trai học chuyên Lý. Họ mạnh mẽ và đầy nam tính đấy."
+"Người nghệ sỹ ấy đóng trăm vai vai nào cũng giỏi <br>
+Chỉ một vai không đóng nổi <br>
+Vai mình!"
+
+  (Chế Lan Viên, "Thơ về thơ")
